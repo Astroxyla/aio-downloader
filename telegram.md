@@ -7,6 +7,357 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 14:17
+---
+
+## VahidOOnLine — post 239876
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239876_1778669243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ادعای رضا کیانیان، هنرپیشه مشهور سینما و تلویزیون ایران درباره کمک سه میلیون دلاری در کارزار احیای دریاچه ارومیه، جنجالی شده است.
+
+کیانیان در مصاحبه با برنامه اینترنتی بهاره افشاری گفته بود: «سه میلیون دلار  [از ژاپن] گرفتم و به عیسی کلانتری دادم».
+
+عیسی کلانتری، رئیس سابق سازمان محیط زیست در مصاحبه با ایلنا با تکذیب گفته‌های کیانیان گفت: « رضا کیانیان پولی از جایکا (دفتر همکاری‌های ایران و ژاپن) نگرفته که به من بدهد، اگر گرفته، اثبات کند! او اصلا او از جایگاه جایکا اطلاعی ندارد و آنها پول به فرد نمی‌دهند، خواستم شکایت کنم اما دیدم از روی بی‌اطلاعی این حرف‌ها را می‌گوید و یا شاید ‌دنبال بزرگ کردن خودش است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239875
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239875_1778669243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا رییسی، معاون بهداشت وزارت بهداشت، با هشدار نسبت به «سیر نزولی جمعیت» در کشور گفت: «روند جمعیت در ایران و جهان همچنان نزولی است، اما معتقدم مسئله جمعیت حتی از چالش‌های نظامی و جنگ‌های جاری نیز مهم‌تر است.»
+
+او افزود: «همین اقتداری که ملت و نیروهای مسلح در ایام جنگ نشان داده‌اند، ناشی از همین جمعیت جوان است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239874
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239874_1778669244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وال استریت ژورنال روز چهارشنبه ۲۳ اردیبهشت به نقل از مقام‌های عرب و یک فرد آگاه گزارش داد، رئیس سازمان جاسوسی اسرائیل، موساد در طول جنگ با ایران دست‌کم دو بار به منظور هماهنگی در مورد جنگ به امارات متحده عربی سفر کرده است.
+این منابع گفتند که دیوید بارنیا، رئیس موساد، دست‌کم در دو نوبت جداگانه، در ماه مارس و آوریل، مخفیانه از امارات متحده عربی بازدید کرد.
+
+این منابع سفر بارنیا به امارات را نشانه‌ای از همکاری رو به رشد بین اسرائیل و امارات متحده عربی دانسته‌اند.
+وال استریت ژورنال گزارش داده است که دو کشور در طول جنگ هماهنگی امنیتی نزدیکی را نشان داده‌اند و اسرائیل سامانه گنبد آهنین و ده‌ها پرسنل نظامی را برای راه‌اندازی آنها جهت دفاع در برابر موشک‌های ایرانی به امارات اعزام کرده است. دیوید هاکبی، سفیر ایالات متحده در اسرائیل روز سه‌شنبه گزارش‌های غیررسمی درباره استقرار سامانه گنبد آهنین و نیروهای اسرائیلی در امارات را تائید کرده بود.
+وزارت امور خارجه امارات متحده عربی و دفتر نخست وزیر اسرائیل هنوز به این گزارش واکنشی نشان نداده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام یاشار جان خسته نباشی❤️ تو یه اتفاق جالب با همکلاسیم نشسته بودیم تو سلف دانشگاه غذا میخوردیم،دوستم پرسید اخبار چک میکنی گفتم اره،بعد نشون هم دادیم گوشیامونو😅چند روز پیش کانالتو براش فرستادم،البته از اینستا میشناختت ولی کانالتو نداشت،و پیجتم دنبال نمیکرد…
+</div>
+
+## WithYashar — post 11138
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11138_1778669245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام یاشار جان خسته نباشی❤️
+تو یه اتفاق جالب با همکلاسیم نشسته بودیم تو سلف دانشگاه غذا میخوردیم،دوستم پرسید اخبار چک میکنی گفتم اره،بعد نشون هم دادیم گوشیامونو😅چند روز پیش کانالتو براش فرستادم،البته از اینستا میشناختت ولی کانالتو نداشت،و پیجتم دنبال نمیکرد فقط چندبار دیده بود.
+دوستم‌گفت بهت بگم‌ همش اخبارو چک میکنیم و منتظر اخبار بعدی میمونیم😅
+</div>
+
+## WithYashar — post 11137
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11137_1778669245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین «نمایندگی رسمی مجاز اپل» یا Apple Authorized Reseller در افغانستان افتتاح شد
+@withyashar
+</div>
+
+## mwarmonitor — post 9024
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️🇺🇸نیروی هوایی آمریکا به دنبال تجهیز جنگنده‌های F-16 به اخلالگرهای نورثروپ گرومن است
+
+📝نویسنده: کالین دمارست AXIOS
+
+🔰نیروی هوایی ایالات متحده در نظر دارد بر اساس اسناد بودجه، طی چند سال آینده ۲۰۶ پکیج ارتقایافته جنگ الکترونیک برای جنگنده‌های F-16 خریداری کند.
+
+🔸چرا این موضوع اهمیت دارد؟
+هواپیماهای جنگنده ساخت شرکت لاکهید مارتین می‌توانند از اوایل سال ۲۰۲۸ به «سوییت یکپارچه جنگ الکترونیک وایپر» (IVEWS) محصول شرکت نورثروپ گرومن مجهز شوند.
+🔹مارک ساندور، مدیر استراتژی و راهکارهای ماموریتی نورثروپ، به اکسیوس (Axios) گفت:
+«این اقدام در واقع به معنای قرار دادن جنگ الکترونیک نسل ششم در یک پلتفرم نسل چهارم است.»
+🔸وضعیت فعلی: پروژه‌ای که سال‌ها در حال توسعه بوده است
+۲۰۱۹: نیروی هوایی برای اولین بار سیستم IVEWS را انتخاب کرد.
+۲۰۲۱: اولین پرواز این سیستم در رزمایش "Northern Lightning" انجام شد.
+۲۰۲۴: پروازهای آزمایشی بر روی F-16های نیروی هوایی آغاز گشت.
+۲۰۲۵: ارزیابی‌های عملیاتی به پایان رسید.
+در همان سال، نورثروپ اعلام کرد که سیستم IVEWS به طور «یکپارچه» با رادار آرایه فازی فعال SABR کار می‌کند. فیل لودن، مدیر بخش IVEWS در نورثروپ، اظهار داشت: «سخت‌افزار و نرم‌افزار بسیار پایدار بوده‌اند و نیروی هوایی با جدیت در حال افزایش سرعت تولید است.»
+نگاهی به گذشته و چشم‌انداز جهانی
+بودجه: سیستم IVEWS مبلغ ۱۸۷ میلیون دلار از بودجه سال ۲۰۲۵ دریافت کرد که صرف تولید اولیه با نرخ پایین شد.
+🔸بازار بین‌المللی: علاقه زیادی به این پکیج جنگ الکترونیک در سطح جهان وجود دارد. در حال حاضر حدود ۲,۸۰۰ فروند F-16 در بیش از ۲۴ کشور در حال خدمت هستند.
+🔹مشتریان خارجی: در سال ۲۰۲۴، گزارش‌های گسترده‌ای مبنی بر خرید این سیستم توسط ترکیه منتشر شد. لودن در این باره گفت: «ما به طور فعال در فرآیند فروش نظامی خارجی با بسیاری از کشورهای شریک درگیر هستیم.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341626
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341626_1778669246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Marco Rubio made a major fashion statement on Air Force One.
+
+The Secretary of State spotted on the president's plane in the now-infamous gray Nike Tech tracksuit associated with Venezuelan leader Nicolás Maduro.
+
+Maduro was seen wearing a strikingly similar outfit during his capture by American forces earlier this year.
+</div>
+
+## pm_afshaa — post 90679
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90679_1778669246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: پیش‌بینی میشه ترامپ از رئیس‌جمهور چین بخواد که بر ایران فشار بیاره تا تنگه هرمز رو بازگشایی کنه و با یک توافق صلح مناسب موافقت کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90678
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90678_1778669247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اپل به صورت رسمی اولین نمایندگی خودش رو در افغانستان افتتاح کرد..
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90677
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90677_1778669247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت خارجه:
+آمریکا فعلا با پیشنهاد جمهوری اسلامی موافقت نکرده، اما تهران از طریق میانجی‌های پاکستانی منتظر ارزیابی دقیق‌تره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90676
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90676_1778669248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی:
+رئیس موساد، حداقل دو بار در طول جنگ به منظور هماهنگی کمپین علیه جمهوری اسلامی به امارات متحده عربی سفر کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2605
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2605_1778669248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ با اپ TunnelX در ویندوز از قابلیت Split Tunneling استفاده کنید.
+
+🔹اپ TunnelX برای زمانی ساخته شده که کاربر نمی‌خواهد تمام ترافیک سیستم از وی‌پی‌ان عبور کند. با این برنامه می‌توان فقط برنامه‌هایی مثل مرورگر، تلگرام، ابزارهای توسعه یا برنامه‌های مشخص دیگر را وارد تونل کرد و بقیه ترافیک سیستم را روی اینترنت عادی نگه داشت. همچنین در صورت نیاز، حالت Full-route برای عبور کل سیستم از تونل در دسترس است.
+
+🔗 دانلود اپ از گیت‌هاب پروژه
+
+🆔 @iaghapour
+</div>
+
+## DEJradio — post 4611
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4611_1778669249.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 من دانشجو هستم و تا چند وقت دیگر باید از ایران بروم. چون سیستم های بین المللی قطع است و پدر و مادرم نمی توانند برایم پول واریز کنند، مجبورم مقدار بیشتری دلار ببرم تا هزینه یکسال را داشته باشم. اکثر دستگاه‌های عابربانک قطع هستند و یا پول نمی دهند و اگر هم پول می‌دهند بسیار محدود.
+
+دلار هم تا یک سقفی صرافی‌ها می فروشند. گرفتار شده‌ام. اگر وضع مملکت درست بود مجبور نبودم پدرو مادر و دوست و آشنا را ول کنم و با فوق لیسانس دانشگاه امیرکبیر، تازه بروم از نو درس بخوانم.
+مردم همه گرفتارند، بانک‌ها خودشان دنبال پول نقد هستند.
+
+#جمهوری_اسلامی
+@DEJradio
+</div>
+
+## mamlekate — post 103521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 صادرات نفت از جزیره خارک برای نخستین بار از آغاز جنگ، چند روز متوقف شد
+
+تصاویر ماهواره‌ای نشان می‌دهند صادرات نفت از پایانه اصلی نفتی ایران در جزیره خارک طی روزهای اخیر متوقف شده و همزمان ظرفیت مخازن ذخیره‌سازی این جزیره نیز رو به تکمیل است؛ وضعیتی که می‌تواند جمهوری اسلامی را ناچار به کاهش بیشتر تولید نفت کند.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 336961
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336961_1778669251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا رییسی، معاون بهداشت وزارت بهداشت، با هشدار نسبت به «سیر نزولی جمعیت» در کشور گفت: «روند جمعیت در ایران و جهان همچنان نزولی است، اما معتقدم مسئله جمعیت حتی از چالش‌های نظامی و جنگ‌های جاری نیز مهم‌تر است.»
+
+او افزود: «همین اقتداری که ملت و نیروهای مسلح در ایام جنگ نشان داده‌اند، ناشی از همین جمعیت جوان است.»
+https://iranintl.com/202605132086
+</div>
+
+## IranianMinds — post 20063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال‌استریت ژورنال:
+
+رییس موساد در جریان جنگ دو بار به امارات سفر کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20062
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20062_1778669251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدونم باورتون نمیشه اما
+
+اپل به صورت رسمی اولین نمایندگی خودش رو در افغانستان افتتاح کرد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389365
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389365_1778669252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حرف دل ایران ❤️🦁💚⁩
+این رپ خوندرو چندن گوش میکنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389364
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389364_1778669253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+R23
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389363
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389363_1778669253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فلورین تاردیف که روزنامه‌نگاره، کتاب جدیدی چاپ کرده به اسم «Un couple parfait» و جایی از کتابش به اون ماجرای چک زدن بریژیت مکرون تو صورت مردک قرمساق امانوئل مکرون جلو در هواپیما اشاره کرده و نوشته،
+
+اون داستان به خاطر پیام‌های بوجی موجی طور از گلشیفته فراهانی بوده که بریژیت روی گوشی امانوئل‌مکرون قحبه زاده در طول سفر به ویتنام دیده.
+
+می‌شه گفت که یک سر مواضع دوستانه‌ی امانوئل مکرون قحبه با جمهوری‌اسلامی و هر شب تماس گرفتناش با مسعود پزشکیان برمی‌گرده به همین ادعای فلورین تاردیف در کتابش.
+
+این مطلب رو در اسرع وقت باید به عرض شیر وفادار خدا برسونم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 119699
+
+<div align="center">
+  <a href="telegram/content/alonews_119699_1778669253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیش از ۱۵۰۰ کشتی خارجی در دو سوی تنگهٔ هرمز منتظر دریافت مجوز از سوی جمهوری اسلامی ایران برای عبور هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119698
+
+<div align="center">
+  <a href="telegram/content/alonews_119698_1778669254.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد همچنان به اعمال محاصره علیه کشتی‌هایی که به داخل ایران وارد می‌شوند یا از آنها خارج می‌شوند، ادامه می‌دهند.
+
+
+🔴سنتکام مدعی شد که در جریان این عملیات، مسیر ۶۵ کشتی تجاری را تغییر داده و چهار کشتی دیگر را از کار انداخته‌است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 14:03
 ---
 
